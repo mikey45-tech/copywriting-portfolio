@@ -2,7 +2,7 @@
 
 **Copywriter | Creative Writer | Storyteller**
 
-I craft clear, persuasive, and emotionally engaging content that connects with audiences and drives action. My work blends creativity with strategy—whether it’s sales copy, brand storytelling, or content marketing.
+I craft clear, persuasive, and emotionally engaging content that connects with audiences and drives action. My work blends creativity with strategy; whether it’s sales copy, brand storytelling, or content marketing.
 
 ---
 
@@ -32,7 +32,7 @@ I craft clear, persuasive, and emotionally engaging content that connects with a
 - Built strong call-to-action structure  
 
 **Sample Copy:**
-> "Crypto shouldn’t feel complicated. With us, you don’t need to be an expert to grow your money—you just need the right system."
+> "Crypto shouldn’t feel complicated. With us, you don’t need to be an expert to grow your money; you just need the right system."
 
 **Result:**
 - Improved onboarding experience  
@@ -49,7 +49,7 @@ I craft clear, persuasive, and emotionally engaging content that connects with a
 - Used urgency + clarity to drive interaction  
 
 **Sample:**
-> "Smart money is positioning quietly. The question is—are you watching, or are you waiting too long again?"
+> "Smart money is positioning quietly. The question is; are you watching, or are you waiting too long again?"
 
 **Result:**
 - Higher engagement  
@@ -82,7 +82,7 @@ I craft clear, persuasive, and emotionally engaging content that connects with a
 - Focused on convenience and trust  
 
 **Sample:**
-> "No need to stress for bank queue again. Withdraw, transfer, and pay bills here—fast and reliable."
+> "No need to stress for bank queue again. Withdraw, transfer, and pay bills here; fast and reliable."
 
 **Result:**
 - Increased walk-in customers  
@@ -98,7 +98,7 @@ I craft clear, persuasive, and emotionally engaging content that connects with a
 - Used emotional triggers  
 
 **Sample:**
-> "This isn’t just a house—it’s the upgrade you’ve been waiting for."
+> "This isn’t just a house; it’s the upgrade you’ve been waiting for."
 
 **Result:**
 - Increased inquiries  
@@ -162,7 +162,7 @@ I craft clear, persuasive, and emotionally engaging content that connects with a
 - Positioned product as an experience  
 
 **Sample:**
-> "This isn’t just a shirt—it’s the confidence you wear."
+> "This isn’t just a shirt; it’s the confidence you wear."
 
 **Result:**
 - Improved engagement  
@@ -179,8 +179,8 @@ I craft clear, persuasive, and emotionally engaging content that connects with a
 
 ##📬 Contact Me
 
-- 📧 Email: your-email@gmail.com  
-- 📍 Location: Nigeria  
+- 📧 Email: sinlessmike45@gmail.com
+- 📍 Location: Remote
 
 ---
 
